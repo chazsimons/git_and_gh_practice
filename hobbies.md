@@ -1,0 +1,2 @@
+## *Some of my favorite things:*
+My main hobby is reading and collecting comic books and graphic novels. I've worked in a comic shop for over a decade so as you can imagine, my collection is pretty extensive. I really enjoy reading comics because of the variety of stories being told and the visual element can be super wild. I love the big two(Marvel and DC) but lately my heart has been in the indie scene, watching creators rise in popularity is pretty cool.
